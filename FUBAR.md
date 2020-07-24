@@ -1,1 +1,1 @@
-
+Do this exercise four times, following the steps below: once with each team member in each role.
